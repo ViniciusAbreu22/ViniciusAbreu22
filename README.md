@@ -1,16 +1,15 @@
-## Hi there 👋
+## ***Bem Vindo ao meu perfil*** ⚡⚡⚡
 
-<!--
-**ViniciusAbreu22/ViniciusAbreu22** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Meu nome é Vinicius Abreu, o mais gostoso de Cunha ⚡
 
-Here are some ideas to get you started:
+- Estudo no Paraitinga
+- Sou o melhor goleiro de Cunha
+- Faço aniversario dia 16/01
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+  **ME SIGA NO INSTAGRAM**
+ @viniciusabreu_22
+
+ ![](https://media1.tenor.com/m/QmD5eBr2pSAAAAAC/el-bicho-siuu.gif)
+
+ 
+
